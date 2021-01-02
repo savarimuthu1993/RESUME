@@ -1,3 +1,3 @@
 # RESUME
 
-Updated resume
+Updated RESUME
